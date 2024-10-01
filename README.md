@@ -1,1 +1,1 @@
-# industrial-organization-lab
+# Industrial-organization-lab
