@@ -1,1 +1,1 @@
-# Industrial-Organizational-Psychology-Lab
+# Industrial-Organizational Psychology Lab
